@@ -1,2 +1,2 @@
 # Amelia-Candradewi
-Haii kenalan denganku yukk
+Personal Website
